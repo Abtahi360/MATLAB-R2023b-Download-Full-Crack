@@ -83,7 +83,7 @@
 
 ### 📺 Demo Video
 
-[🔗 Watch Installation Demo](#): 
+🔗 Watch Installation Demo: 
 
 ---
 
