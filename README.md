@@ -83,7 +83,7 @@
 
 ### 📺 Demo Video
 
-🔗 Watch Installation Demo: 
+🔗 Watch Installation Demo: https://1024terabox.com/s/15DoxXG8gp0I6qgiDrjPbtQ
 
 ---
 
